@@ -1,0 +1,1 @@
+take the nooddles put in the water and boil it and put the powder and boil it for few minutes 
